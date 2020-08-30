@@ -1,1 +1,1 @@
-<img src="https://cdnb.artstation.com/p/assets/images/images/024/538/827/original/pixel-jeff-clipa-s.gif?1582740711" width="100%" height="100%" />
+<img src="https://steamuserimages-a.akamaihd.net/ugc/2429005285070992894/65B32CF6DE5AC0F07A4AEC3539FF5BB7E3B093B0/" width="100%" height="100%" />
